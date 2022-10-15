@@ -97,7 +97,7 @@ Recommended WhatsApp👇
 
 ## ```Connect With Me```
 <p align="center">
-<a href="https://wa.me/380944814219"><img src="https://www.svgrepo.com/show/122874/whatsapp.svg" width="100"/>
+<a href="https://wa.me/0703768027><img src="https://www.svgrepo.com/show/122874/whatsapp.svg" width="100"/>
 </p>
 
 </details>
